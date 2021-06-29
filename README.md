@@ -1,4 +1,4 @@
 # Greetings
-Even now in Heaven there were angels carrying savage weapons
-Hell is just a chaotic Heaven
-Also the messages above are plain nonsense
+My friend, we are all the same 
+And we are so different 
+Let's make a good journey
